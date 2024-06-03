@@ -1,9 +1,9 @@
 Hi there 👋
 Hi, I'm luckyNwa.
 
-🇨🇳  China BeiJing     🌱  xxx
+🇨🇳  China BeiJing     🌱  
 
-微信群交流：v: xxxxx（备注来意）
+微信: N1656213092（备注来意）
 <!--
 **luckyNwa/luckyNwa** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
